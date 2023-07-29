@@ -1,4 +1,4 @@
-### Ola! 👋
+### Ola!, Eu sou o Fabrício👋
 - 🔭 Atualmente Trabalho como pizzaiolo.
 - 🌱 Atualmente Estou estudando Desenvolvimento Web.
 - 📫 Onde me encontrar: Instagram, Twitter, em breve mais redes. Links no perfil.
